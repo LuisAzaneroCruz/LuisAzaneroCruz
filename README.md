@@ -9,6 +9,9 @@
 
 - 📫 How to reach me **luisazanero1991@gmail.com**
 
+- 📄 Know about my experiences [https://www.linkedin.com/in/luis-aza%C3%B1ero-cruz-382357209/](https://www.linkedin.com/in/luis-aza%C3%B1ero-cruz-382357209/)
+
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
